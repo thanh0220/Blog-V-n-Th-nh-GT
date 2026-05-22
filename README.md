@@ -1,2 +1,2 @@
-# Blog-V-n-Th-nh-GT
+# Blog-Văn Thành GT
 Bài đăng Văn Thành GT
